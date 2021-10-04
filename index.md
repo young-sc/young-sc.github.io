@@ -1,12 +1,13 @@
 ## Welcome to youngsc's GitHub Pages
 We yearn for communism
+Мы жаждем коммунизма
+
+It is our dream to liberate all mankind
+освобождение всего человечества - наша мечта
 
 
-Our ideal is to liberate all mankind
 
-
-
-my email：3508039891@qq.com  &  young135790000@gmail.com
+my email Моя электронная почта：3508039891@qq.com  &  young135790000@gmail.com
 
 
 
