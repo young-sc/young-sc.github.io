@@ -1,9 +1,19 @@
 ## Welcome to youngsc's GitHub Pages
-我不知道写什么
-但我建了个页面
+We yearn for communism
+
+
+Our ideal is to liberate all mankind
 
 
 
- ## 但是你看nm呢
+my email：3508039891@qq.com  &  young135790000@gmail.com
+
+
+
+
+
+
+
+ 
 
 
